@@ -2,7 +2,7 @@
 
 Extra mysigt! Därför!
 
-Jag har valt Ayu Mirage.
+Jag har valt Ayu Mirage. hej
 
 Jag ska nu sluta prata och bara skriva instruktioner.
 
